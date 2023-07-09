@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-My name is Kadison McLellan and I am a game developer in Australia.
+My name is Kadison and I am a game developer in Australia.
