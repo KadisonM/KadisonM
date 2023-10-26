@@ -1,5 +1,5 @@
 ### Hello there! 
-*Yes, that's a Star Wars reference*
+*Star Wars reference*
 
 🇦🇺 I am Kadison McLellan. I am an Australian highschool student who aspires to be a software developer.
 
