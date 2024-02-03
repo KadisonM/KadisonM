@@ -6,3 +6,4 @@
 
 🎮 I am a very big VR enthusiast. I've loved sci-fi and dystopian concepts ever since I was a child.
 
+If my status is set to busy it means I'm in the middle of a school term, so bear with me.
